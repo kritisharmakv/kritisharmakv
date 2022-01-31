@@ -6,6 +6,8 @@
 
 - Did schooling from Kendriya Vidyalaya, was
   into debates and maths olympiads.
+  
+- AlR 12 in K.V.S. Senior Secondary Exams.
 
 - A mirror dancer, umm call it a day.
 
